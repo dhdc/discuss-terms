@@ -1,4 +1,1 @@
-discuss-terms
-=============
-
-Terms of Service for DHDC Discussion Forums
+Terms of Service for DHDC Discussion Forums (under construction)
